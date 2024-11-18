@@ -2,7 +2,9 @@
 - 👀 I’m interested in ...web development 
 - 🌱 I’m currently learning ... YouTube automation
 - 💞️ I’m looking to collaborate on ...web design 
-- 📫 How to reach me ...+2349069084346
+- 📫 How to reach me ...call/WhatsApp:+2349069084346
+- ig: faruq_millerr
+- tiktok: travis_miller0
 - 😄 Pronouns: ... you'll enjoy knowing me
 - ⚡ Fun fact: ... idgaf
 you'll never walk alone 
